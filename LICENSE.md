@@ -1,4 +1,4 @@
-# 
+# best nft trading bot | stop-loss + trailing-stop is the best nft trading bot, featuring stop-loss and trailing-stop. Fast, smart, and optimized for NFT trading on marketplaces
 
 
 
